@@ -5,6 +5,6 @@
 
 👤 - Eduardo Sencades (he/him; ele/dele); 
 🗺️ - Brasil; 
-💌 - Yume 2kki, Silent Hill; 
+🎮 - Yume 2kki, Silent Hill; 
 🎶 - Metal/Punk; 
-
+💌 - Desenhar, Café, Escutar música;
