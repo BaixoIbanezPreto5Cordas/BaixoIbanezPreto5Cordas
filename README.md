@@ -1,8 +1,8 @@
 <h4 align="center">
   
-~ 幽☆遊☆白書!
+**~ アーマード・コア2 アナザーエイジ**
 
-![imagem](https://i.pinimg.com/originals/53/fc/59/53fc59213fb6d1638ab31b630a02bb0d.gif)
+![imagem](https://miro.medium.com/v2/resize:fit:1358/0*8suA0oRYep5o_xI5.gif)
 
 - 👤 - Eduardo Sencades (he/him; ele/dele); 
 - 🗺️ - Brasil; 
